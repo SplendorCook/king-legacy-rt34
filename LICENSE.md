@@ -1,4 +1,4 @@
-#  
+#  Experience king legacy like never before with advanced king legacy Scripts, the #1 Script. Includes infinite resources and esp for unbeatable
 
 
 
